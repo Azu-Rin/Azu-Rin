@@ -85,17 +85,18 @@
 
 ![text (2)](https://github.com/user-attachments/assets/1d00830c-567f-4dab-b91a-f3c5af029c2b) 
   <p align="center">
-![rainbow-webcore](https://github.com/user-attachments/assets/6b6fd4d1-f31f-4f4e-a48d-68a4221ebe7c)
-  <p align="center"> 
-✩ ᴍᴜʀᴅᴇʀ ᴅʀᴏɴᴇꜱ ✩
+
+   <p align="center"> 
+✩ ᴍᴜʀᴅᴇʀ ᴅʀᴏɴᴇꜱ ✩ 
   <p align="center"> 
 ✩ ᴛᴀᴅᴄ ✩
-  <p align="center"> 
+  <p align="center">  
 ✩ ᴅɪᴀʙᴏʟɪᴋ ʟᴏᴠᴇʀꜱ ✩
   <p align="center"> 
-✩ ᴛꜰᴄ ✩
+✩ ᴛꜰᴄ ✩ 
   <p align="center"> 
-✩ ᴄʀᴋ ✩<p align="center"> 
+✩ ᴄʀᴋ ✩
+  <p align="center"> 
 ✩ ʙʀᴀᴡʟ ꜱᴛᴀʀꜱ ✩
   <p align="center"> 
 ✩ ᴘᴘᴛ ✩
@@ -122,6 +123,9 @@
   <p align="center"> 
 ✩ ɢʀᴀɴɴʏ ✩
   <p align="center"> 
+    
+![rainbow-webcore](https://github.com/user-attachments/assets/6b6fd4d1-f31f-4f4e-a48d-68a4221ebe7c)
+
 ![tumblr_e01fe197f0ddae9eb1db4fa0f8a02ec3_0df7a53b_500-ezgif com-resize](https://github.com/user-attachments/assets/cf408636-2d0d-461f-bc56-5ce86d5d96a4) 
 <p align="right"> 
 
