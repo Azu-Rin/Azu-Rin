@@ -1,17 +1,11 @@
-## Hi there 👋
+![scenecore-stars-ezgif com-resize](https://github.com/user-attachments/assets/de9feed7-836e-4784-af07-87d4dad2b8cb)
 
-<!--
-**Azu-Rin/Azu-Rin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="right"> 
+<img width="400" height="2048" alt="image" src="https://github.com/user-attachments/assets/ae42e0d1-cab0-40df-bc78-4cbab24cbce0" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...![rainbow-webcore](https://github.com/user-attachments/assets/0eb28030-4e3e-47a6-9d79-30d62721e590)
 
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<p align="right"> 
+
+<p align="left">
