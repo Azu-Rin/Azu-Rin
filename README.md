@@ -50,12 +50,80 @@
   <p align="center"> 
 ✩ ᴘᴘʟ ᴡʜᴏ ɢᴇᴛ ᴇᴀꜱɪʟʏ ᴏꜰꜰᴇɴᴅᴇᴅ ✩
   <p align="center"> 
+✩ ᴀɴʏ ᴄʏɴ/ꜱᴏʟᴠᴇʀ ꜱʜɪᴘꜱ ✩
+  <p align="center"> 
     
 .𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖  
 
   ![scenecore-stars-ezgif com-resize](https://github.com/user-attachments/assets/de9feed7-836e-4784-af07-87d4dad2b8cb)
   .𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖  
 
+<img width="400" height="1000" alt="image" src="https://github.com/user-attachments/assets/bfb52ba5-9433-41af-b76c-c5a5f99d0c16" align="left"> ![text (1)](https://github.com/user-attachments/assets/d2987648-06ac-44e7-aedf-163f95504d62)
+  <p align="center"> 
+✩ ɪʙɪꜱ ᴘᴀɪɴᴛ ᴀʀᴛɪꜱᴛ ✩ 
+  <p align="center"> 
+✩ ʙᴇɢɪɴɴᴇʀ 3ᴅ (ʙʟᴇɴᴅᴇʀ) ᴀʀᴛɪꜱᴛ ✩ 
+  <p align="center"> 
+✩ ᴇᴀʀʟʏ 2010ꜱ ɪɴᴛᴇʀɴᴇᴛ ᴄᴜʟᴛᴜʀᴇ ᴇɴᴊᴏʏᴇʀ ✩ 
+  <p align="center"> 
+✩ ɴɪɢʜᴛᴄᴏʀᴇ ᴀᴅᴅɪᴄᴛ ✩ 
+  <p align="center"> 
+✩ ᴘᴀɴ ✩
+  <p align="center"> 
+✩ ɪɴꜱᴇᴄᴛꜱ & ᴀʀᴀᴄʜɴɪᴅꜱ ʟᴏᴠᴇʀ ✩
+  <p align="center"> 
+✩ 2018 ɢᴀᴄʜᴀ ᴋɪᴅ ✩ 
+  <p align="center"> 
+✩ ɴɪɢʜᴛ ᴏᴡʟ ✩
+  <p align="center"> 
+✩ ʜᴜɢᴇ ᴍᴜʀᴅᴇʀ ᴅʀᴏɴᴇꜱ ꜰᴀɴ ✩
+  <p align="center"> 
+✩ ʜᴏʀʀᴏʀ ɢᴀᴍᴇꜱ/ᴀɴɪᴍᴇ/ꜱʜᴏᴡꜱ/ᴍᴏᴠɪᴇꜱ >>> ✩
+  <p align="center"> 
+✩ ᴄᴀᴛ ᴘᴇʀꜱᴏɴ ✩
+  <p align="center"> 
+
+![text (2)](https://github.com/user-attachments/assets/1d00830c-567f-4dab-b91a-f3c5af029c2b) 
+  <p align="center">
+![rainbow-webcore](https://github.com/user-attachments/assets/6b6fd4d1-f31f-4f4e-a48d-68a4221ebe7c)
+  <p align="center"> 
+✩ ᴍᴜʀᴅᴇʀ ᴅʀᴏɴᴇꜱ ✩
+  <p align="center"> 
+✩ ᴛᴀᴅᴄ ✩
+  <p align="center"> 
+✩ ᴅɪᴀʙᴏʟɪᴋ ʟᴏᴠᴇʀꜱ ✩
+  <p align="center"> 
+✩ ᴛꜰᴄ ✩
+  <p align="center"> 
+✩ ᴄʀᴋ ✩<p align="center"> 
+✩ ʙʀᴀᴡʟ ꜱᴛᴀʀꜱ ✩
+  <p align="center"> 
+✩ ᴘᴘᴛ ✩
+  <p align="center"> 
+✩ ʜᴀᴢʙɪɴ ʜᴏᴛᴇʟ ✩
+  <p align="center"> 
+✩ ʜᴇʟʟᴜᴠᴀ ʙᴏꜱꜱ ✩
+  <p align="center"> 
+✩ ᴅᴇʟᴛᴀʀᴜɴᴇ ✩
+  <p align="center"> 
+✩ ᴜɴᴅᴇʀᴛᴀʟᴇ ✩
+  <p align="center"> 
+✩ ᴠʀᴄʜᴀᴛ ✩
+  <p align="center"> 
+✩ ᴅᴇᴍᴏɴ ꜱʟᴀʏᴇʀ ✩
+  <p align="center"> 
+✩ ᴍʟᴘ ✩
+  <p align="center"> 
+✩ ᴏꜱᴜ! ✩
+  <p align="center"> 
+✩ ᴇɴᴀ ᴅʀᴇᴀᴍ ʙʙQ ✩
+  <p align="center"> 
+✩ ʙᴀʟᴅɪ ✩
+  <p align="center"> 
+✩ ɢʀᴀɴɴʏ ✩
+  <p align="center"> 
+![tumblr_e01fe197f0ddae9eb1db4fa0f8a02ec3_0df7a53b_500-ezgif com-resize](https://github.com/user-attachments/assets/cf408636-2d0d-461f-bc56-5ce86d5d96a4) 
+<p align="right"> 
 
 
 
