@@ -27,5 +27,37 @@
 .𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖
  
 ![scenecore-stars-ezgif com-resize](https://github.com/user-attachments/assets/de9feed7-836e-4784-af07-87d4dad2b8cb)
-.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   
+.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖  
+
+![emo-heart](https://github.com/user-attachments/assets/d036ed47-632c-44af-ad40-10bc5d3dd0c1)✩₊˚.⋆☾⋆
+![text](https://github.com/user-attachments/assets/f3fb3c31-c7aa-48dd-aaaf-7b6884ac85a4)✩₊˚.⋆☾⋆![emo-heart](https://github.com/user-attachments/assets/20426cda-2b29-415d-bb2f-661f9e114eb6)
+  <p align="center"> 
+✩ ᴘʟᴀʏᴇʀꜱ ᴜɴᴅᴇʀ ᴛʜᴇ ᴀɢᴇ ᴏꜰ 15 ✩
+  <p align="center"> 
+✩ ᴀɴʏ ᴊᴀx ꜱʜɪᴘꜱ (ᴇxᴄᴇᴘᴛ ʀɪʙʙɪᴛ x ᴊᴀx) ✩
+  <p align="center"> 
+✩ ᴀɴʏ ᴋɪɴɢᴇʀ ꜱʜɪᴘꜱ (ᴇxᴄᴇᴘᴛ ᴋɪɴɢᴇʀ x Qᴜᴇᴇɴɪᴇ) ✩
+  <p align="center"> 
+✩ ꜱʜᴏᴡᴛɪᴍᴇ ꜱʜɪᴘᴘᴇʀꜱ ✩
+  <p align="center"> 
+✩ ᴘᴘʟ ᴡʜᴏ ᴊᴜꜱᴛɪꜰʏ ᴛᴏxɪᴄ ꜱʜɪᴘꜱ ᴡɪᴛʜ ᴛʜᴇɪʀ ᴀᴜꜱ ✩
+  <p align="center"> 
+✩ ᴏᴄ x ᴄᴀɴᴏɴ ✩
+  <p align="center"> 
+✩ ᴄᴏᴅᴇɢᴏʟᴅ ꜱʜɪᴘᴘᴇʀꜱ ✩
+  <p align="center"> 
+✩ ᴊᴇꜱꜱᴀ ꜱʜɪᴘᴘᴇʀꜱ ✩
+  <p align="center"> 
+✩ ᴘᴘʟ ᴡʜᴏ ɢᴇᴛ ᴇᴀꜱɪʟʏ ᴏꜰꜰᴇɴᴅᴇᴅ ✩
+  <p align="center"> 
+    
+.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖  
+
+  ![scenecore-stars-ezgif com-resize](https://github.com/user-attachments/assets/de9feed7-836e-4784-af07-87d4dad2b8cb)
+  .𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖  
+
+
+
+
+ 
 
