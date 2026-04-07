@@ -15,13 +15,13 @@
   <p align="centre"> 
 ✩ ɪ ᴅᴏɴ'ᴛ ᴀᴄᴄᴇᴘᴛ ʀᴀɴᴅᴏᴍ ꜰʀɪᴇɴᴅ ʀᴇQᴜᴇꜱᴛꜱ (ᴘʟᴇᴀꜱᴇ ᴛᴀʟᴋ ᴛᴏ ᴍᴇ ʙᴇꜰᴏʀᴇ ᴀᴅᴅɪɴɢ)
   <p align="centre"> 
+  
+![miku-scene-ezgif com-resize](https://github.com/user-attachments/assets/1defc8c5-0739-4fd5-ae8d-4c3efd707e8c)
 
-  <p align="centre"> 
 
-  <p align="centre"> 
-
-<p align="right"> 
-.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖  
+ 
+.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖
+ 
 ![scenecore-stars-ezgif com-resize](https://github.com/user-attachments/assets/de9feed7-836e-4784-af07-87d4dad2b8cb)
 .𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   
-<p align="left">
+
