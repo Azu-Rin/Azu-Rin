@@ -56,7 +56,7 @@
 .𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖  
 
   ![scenecore-stars-ezgif com-resize](https://github.com/user-attachments/assets/de9feed7-836e-4784-af07-87d4dad2b8cb)
-  .𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖  
+.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖  
 
 <img width="400" height="1000" alt="image" src="https://github.com/user-attachments/assets/bfb52ba5-9433-41af-b76c-c5a5f99d0c16" align="left"> ![text (1)](https://github.com/user-attachments/assets/d2987648-06ac-44e7-aedf-163f95504d62)
   <p align="center"> 
@@ -123,13 +123,18 @@
   <p align="center"> 
 ✩ ɢʀᴀɴɴʏ ✩
   <p align="center"> 
-    
+.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖  
+
+![scenecore-stars-ezgif com-resize](https://github.com/user-attachments/assets/de9feed7-836e-4784-af07-87d4dad2b8cb) 
+.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖     
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qjvouprg5wytem62y4oedifsvu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=d60072&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)<p align="right"> 
+
+
 ![rainbow-webcore](https://github.com/user-attachments/assets/6b6fd4d1-f31f-4f4e-a48d-68a4221ebe7c)
 
 ![tumblr_e01fe197f0ddae9eb1db4fa0f8a02ec3_0df7a53b_500-ezgif com-resize](https://github.com/user-attachments/assets/cf408636-2d0d-461f-bc56-5ce86d5d96a4) 
 <p align="right"> 
-
-
 
 
 
