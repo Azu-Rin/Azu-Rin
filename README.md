@@ -19,7 +19,7 @@
   <p align="centre"> 
  ✩ ɪꜰ ʏᴏᴜ ᴡᴀɴᴛ ᴛᴏ ᴋɴᴏᴡ ᴍᴏʀᴇ ʙᴏᴜᴛ ᴍᴇ ᴛʜᴇɴ ᴄʜᴇᴄᴋ ʟɪɴᴋᴇᴅ ꜱᴛʀᴀᴡᴘᴀɢᴇ ^_^
   <p align="centre"> 
-------------------------------------------------------------------------------
+--------------------------------------------------------------------------------------------------------------------------------------------------
 
 .𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖.𖥔 ݁ ˖.𖥔 ݁
 
@@ -30,7 +30,9 @@
 <p align="right">
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qjvouprg5wytem62y4oedifsvu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=d60072&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)<p align="right"> 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qjvouprg5wytem62y4oedifsvu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=d60072&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+<p align="right"> 
 
 
 .𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖.𖥔 ݁  ˖.𖥔 ݁
