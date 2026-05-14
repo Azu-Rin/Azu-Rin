@@ -24,6 +24,14 @@
 .𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖.𖥔 ݁ .𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁
 ![scenecore-stars-ezgif com-resize](https://github.com/user-attachments/assets/de9feed7-836e-4784-af07-87d4dad2b8cb) 
 .𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖.𖥔 ݁ .𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁
+
+<img width="251" height="216" alt="emo-heart" src="https://github.com/user-attachments/assets/c2a95e5e-c2c0-4ae8-a398-01a0b313bfbe" />
+
+<img width="319" height="49" alt="text" src="https://github.com/user-attachments/assets/944a59a7-edea-4495-ba3f-1dc61f19cc3c" />
+  
+ <img width="251" height="216" alt="emo-heart" src="https://github.com/user-attachments/assets/c2a95e5e-c2c0-4ae8-a398-01a0b313bfbe"/> 
+
+
 <img width="450" height="450" alt="image" src="https://github.com/user-attachments/assets/d541fa71-c8a8-45a1-8255-3fb3409159ba" align="right"> 
 <p align="right">
 
