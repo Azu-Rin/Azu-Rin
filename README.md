@@ -25,17 +25,10 @@
 ![scenecore-stars-ezgif com-resize](https://github.com/user-attachments/assets/de9feed7-836e-4784-af07-87d4dad2b8cb) 
 .𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖   ✦    ‧₊˚ ⋅.𖥔 ݁ ˖.𖥔 ݁ .𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁
 
-<img width="251" height="216" alt="emo-heart" src="https://github.com/user-attachments/assets/c2a95e5e-c2c0-4ae8-a398-01a0b313bfbe" />
-
 <img width="319" height="49" alt="text" src="https://github.com/user-attachments/assets/944a59a7-edea-4495-ba3f-1dc61f19cc3c" />
-  
- <img width="251" height="216" alt="emo-heart" src="https://github.com/user-attachments/assets/c2a95e5e-c2c0-4ae8-a398-01a0b313bfbe"/> 
 
-
-<img width="450" height="450" alt="image" src="https://github.com/user-attachments/assets/86f234d3-ec7a-465e-81cf-3e3954f71022" align="right"/>
-" align="right"> 
+<img width="450" height="500" alt="image" src="https://github.com/user-attachments/assets/584e1e63-7050-4ed6-9569-33d9b0f532a6" align="right" />
 <p align="right">
-
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qjvouprg5wytem62y4oedifsvu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=d60072&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
