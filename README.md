@@ -32,7 +32,8 @@
  <img width="251" height="216" alt="emo-heart" src="https://github.com/user-attachments/assets/c2a95e5e-c2c0-4ae8-a398-01a0b313bfbe"/> 
 
 
-<img width="450" height="450" alt="image" src="https://github.com/user-attachments/assets/d541fa71-c8a8-45a1-8255-3fb3409159ba" align="right"> 
+<img width="450" height="450" alt="image" src="https://github.com/user-attachments/assets/86f234d3-ec7a-465e-81cf-3e3954f71022" align="right"/>
+" align="right"> 
 <p align="right">
 
 
