@@ -6,5 +6,9 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qjvouprg5wytem62y4oedifsvu&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=6D22A3&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <img width="500" height="450" alt="image" src="https://github.com/user-attachments/assets/c34b7b41-8c22-4b96-b70c-49396a8bbb99" />
 .𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖.𖥔 ݁ .𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁
-
+<p align=center> ✩₊˚.⋆☾⋆⁺₊✧
+<p align=center> ✩
+<p align=center> ✩₊˚.⋆☾⋆⁺₊✧
+.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖.𖥔 ݁ .𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁
 <img width="2517" height="1706" alt="image" src="https://github.com/user-attachments/assets/fc86ab41-5e8e-45bf-ac5d-9445f56872f8" />
+.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖.𖥔 ݁ .𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁
