@@ -14,5 +14,6 @@
 <img width="2517" height="1706" alt="image" src="https://github.com/user-attachments/assets/fc86ab41-5e8e-45bf-ac5d-9445f56872f8" />
 .𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁ ˖.𖥔 ݁ .𖥔 ݁ ˖ ✦ ‧₊˚ ⋅.𖥔 ݁
 
+<p align=center> ɪ'ᴍ ꜰʀᴇᴇ ᴛᴏ ɪɴᴛ, ᴊᴜꜱᴛ ᴛᴏᴏ ꜱᴄᴀʀᴇᴅ ᴛᴏ ᴛᴀʟᴋ ꜰɪʀꜱᴛ / ɪᴅᴋ ᴡʜʏ ʟᴏʟづ. ◟マ
 <p align=center> ✩ 𝕍𝕀𝕊𝕀𝕋 𝕊𝕋ℝ𝔸𝕎ℙ𝔸𝔾𝔼 𝟜 𝕄𝕆ℝ𝔼! ✩
 <p align=center> (I need to rmk it tho)
